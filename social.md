@@ -1,2 +1,2 @@
 # Social Media 
-[Discord ID](LendiBlakcori#0107)
+Discord ID: (LendiBlakcori#0107)
